@@ -12,3 +12,29 @@ Key insights:
 - Maharashtra and Karnataka are top states
 - Set and Kurta are top-selling categories
 - ~60% orders Shipped, 14% Cancelled
+
+## Charts
+
+
+
+![Chart 1](IMG-20261029-WA0001.jpg)
+
+
+
+
+![Chart 2](IMG-20261029-WA0002.jpg)
+
+
+
+
+![Chart 3](IMG-20261029-WA0003.jpg)
+
+
+
+
+![Chart 4](IMG-20261029-WA0004.jpg)
+
+
+
+
+![Chart 5](IMG-20261020-WA0034.jpg)
